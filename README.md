@@ -1,2 +1,0 @@
-# grazi
-morena tropicana
